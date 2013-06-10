@@ -7,13 +7,13 @@ http://www.youtube.com/watch?v=1deA8trovFs
 
 #### Resimler
 
-![](http://i.imgur.com/tT4AxI0.png?1)
+![](http://u1306.hizliresim.com/1b/c/p0luq.png)
 
 ----------------------------------------------
 
-![](http://i.imgur.com/a7RdAHl.jpg)
+![](http://t1306.hizliresim.com/1b/c/p0luk.jpg)
 
 ----------------------------------------------
 
-![](http://i.imgur.com/qnsNkOt.jpg)
+![](http://u1306.hizliresim.com/1b/c/p0lur.jpg)
 
